@@ -1,1 +1,0 @@
-# biydaalt3Munkherdene
